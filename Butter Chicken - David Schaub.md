@@ -7,17 +7,17 @@
 - 1/2 cup    10% Yogurt
 - 1 tsp      Turmeric Powder, divided
 - 1 1/2 tsp  Garam Masala, divided
-- 1 tsp      salt
+- 1 tsp      Salt
 - 4 Tbs      Almond Powder
 - 1/4 cup    Light Cream
 - 1 cup      Milk
-- 1/4 cup    ghee or butter, divided
+- 115 g      Ghee or Butter, divided
 - 1 cup      Onion paste (see recipe)
 - 1 Tbs      Ginger, finely diced
 - 1 Tbs      Garlic, finely diced
 - 1 tsp      Coriander (powder)
 - 1 1/4 tsp  Deggi Mirch  (aka Kashmiri Chili Powder), divided
-- 1 Tbs      Tomato paste
+- 1 Tbs      Tomato Paste
 
 ## Method:
 1.  Dice chicken thighs into bite size pieces.
